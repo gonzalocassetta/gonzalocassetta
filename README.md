@@ -5,7 +5,7 @@
 
 - 🌱 Actualmente estoy aprendiendo **Python y Java.**
 
-- 👨 Tengo **21 años.**
+- 👨 Tengo **24 años.**
 
 - 📫 Contactame en: **gonzalocassetta2001@gmail.com**
 
